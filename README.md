@@ -25,7 +25,7 @@
  ‎  ‎ ‎ ‎ ‎  ────────  ‎ ‎  ‎ ‎ ‎ ‎‎ ‎· · · ·   ‎ ‎ ‎ ‎ ‎ ‎ RED BULL GIVES YOU WIIINGS.
       </p>
     <p align="center">
-       my ‎‎ ‎‎‎ ‎‎‎‎‎ ‎<a href="https://github.com/rvsseII">george russell</a> !!!   ‎‎ ‎‎‎ ‎‎‎ ‎‎‎ ‎‎‎  ⸜(*ˊᗜˋ*)⸝
+       the ‎‎ ‎‎‎ ‎‎‎‎‎ ‎<a href="https://github.com/rvsseII">george russell</a> !!!   ‎‎ ‎‎‎ ‎‎‎ ‎‎‎ ‎‎‎  ( ´ ω ` )
             </p>‎
        <p align="center">‎
     つ  <a href="https://github.com/pt-hall-of-media">@pt-hall-of-media</a>‎‎'s max verstappen
