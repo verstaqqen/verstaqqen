@@ -28,7 +28,7 @@
        the ‎‎ ‎‎‎ ‎‎‎‎‎ ‎<a href="https://github.com/rvsseII">george russell</a> !!!   ‎‎ ‎‎‎ ‎‎‎ ‎‎‎ ‎‎‎  ( ´ ω ` )
             </p>‎
        <p align="center">‎
-    つ  <a href="https://github.com/pt-hall-of-media">@pt-hall-of-media</a>‎‎'s max verstappen
+    つ  <a href="https://github.com/pt-hall-of-media">@pt-hall-of-media</a>‎‎, <a href="https://github.com/paw-town">@paw-town</a>'s max verstappen
     </p> 
     
   </body>
