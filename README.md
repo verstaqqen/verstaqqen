@@ -22,13 +22,12 @@
 ७ ‎‎ ‎‎‎‎ ‎‎ mv³  ‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎ enthusiast ‎‎ ‎‎ ,   ‎‎ #ver5tappen  ‎ ‎‎ ‎ ‎  ໒꒱   ‎ ‧₊˚
   </p>
   <p align="center">
- ‎  ‎ ‎ ‎ ‎  ────────  ‎ ‎  ‎ ‎ ‎ ‎‎ ‎· · · ·   ‎ ‎ ‎ ‎ ‎ ‎ RED BULL GIVES YOU WIIINGS.
+ ‎  ‎ ‎ ‎ ‎  ────────  ‎ ‎  ‎ ‎ ‎ ‎‎ ‎· · · ·   ‎ ‎ ‎ ‎ ‎ ‎ RED BULL GIVES YOU <a href="https://github.com/rvsseII">WIIINGS</a>.
       </p>
     <p align="center">
-       the ‎‎ ‎‎‎ ‎‎‎‎‎ ‎<a href="https://github.com/rvsseII">george russell</a> !!!   ‎‎ ‎‎‎ ‎‎‎ ‎‎‎ ‎‎‎  ( ´ ω ` )
             </p>‎
        <p align="center">‎
-    つ  <a href="https://github.com/pt-hall-of-media">@pt-hall-of-media</a>‎‎, <a href="https://github.com/paw-town">@paw-town</a>'s max verstappen
+    つ  <a href="https://github.com/pt-hall-of-media">@pt-hall-of-media</a>‎‎, <a href="https://github.com/paw-town">@paw-town</a>'s max verstappen‎‎, <a href="https://github.com/kaotown">@kaotown</a> max verstappen's biggest fan
     </p> 
     
   </body>
