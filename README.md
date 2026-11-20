@@ -25,7 +25,7 @@
  ‎  ‎ ‎ ‎ ‎  ────────  ‎ ‎  ‎ ‎ ‎ ‎‎ ‎· · · ·   ‎ ‎ ‎ ‎ ‎ ‎ RED BULL GIVES YOU WIIINGS.
       </p>
     <p align="center">
-      the ‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎<a href="https://github.com/rvsseII">george russell</a> ‎‎ ‎‎!!!‎ ‎ ‎ (╬ Ò ‸ Ó)
+      the ‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎<a href="https://github.com/rvsseII">george russell</a> ‎‎ .
             </p>‎
        <p align="center">‎
     つ  <a href="https://github.com/pt-hall-of-media">@pt-hall-of-media</a>‎‎, <a href="https://github.com/paw-town">@paw-town</a>'s max verstappen‎‎, <a href="https://github.com/kaotown">@kaotown</a> max verstappen's biggest fan
